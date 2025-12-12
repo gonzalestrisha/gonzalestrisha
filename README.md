@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **trishamayg.gonzales@gmail.com**
 
-- 📄 Check out my resume [here](https://drive.google.com/file/d/14rEI1Kt4HvY95984rxQn58R1TV6qU7aC/view?usp=sharing)
+- 📄 Check out my resume [here](https://drive.google.com/file/d/19p35kMZCwP0QMc7eLEq-m4vd0XlsXycU/view?usp=sharing)
 
 - 🩶 Likes **coffee, RnB, city-builders, frontend development**
 
