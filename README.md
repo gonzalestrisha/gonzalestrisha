@@ -7,7 +7,7 @@
 
 - 📄 Check out my resume [here](https://beta.eden.so/public-access/item/5df8f989-80ee-4b65-8934-b36e21a1c049)
 
-- 🩶 Likes **coffee, RnB, city-builders, frontend development**
+- 🩶 Likes **coffee, RnB, city-builder and driving games, ++ software engineering!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
